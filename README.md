@@ -17,6 +17,8 @@ https://rosesros.github.io/new_files_good/motorcycle/DE/
 
 https://rosesros.github.io/new_files_good/FingerLight/UK/
 
+https://rosesros.github.io/new_files_good/BeatsStudioBuds/UK
+
 https://rosesros.github.io/new_files_good/Whiteningtoothpaste/UK/
 
 https://rosesros.github.io/new_files_good/PortaFlix/DE/
