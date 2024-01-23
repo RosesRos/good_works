@@ -9,6 +9,8 @@ https://rosesros.github.io/new_files_good/ironMan/UK/
 
 https://rosesros.github.io/new_files_good/RocketbookSmartNotepad/UK/
 
+https://rosesros.github.io/new_files_good/SharkBlanket/UK/
+
 https://rosesros.github.io/prototype_crypto/dist/
 
 https://rosesros.github.io/new_files_good/beatsPro/UK/
@@ -26,6 +28,8 @@ https://rosesros.github.io/new_files_good/PortaFlix/DE/
 https://roseslands.surge.sh/@pre3/
 
 https://rosesros.github.io/new_files_good/optimus/UK/
+
+https://rosesros.github.io/new_files_good/BloodyBathMat/UK/
 
 https://rosesros.github.io/lands/@pre54/
 
