@@ -37,6 +37,14 @@ https://rosesros.github.io/new_files_good/Antithefbag/UK/
 
 https://roseslands.surge.sh/@pre5/
 
+https://rosesros.github.io/new_files_good/LEGORoses/UK/
+
+https://rosesros.github.io/new_files_good/TVStickAlexa/UK/
+
+https://rosesros.github.io/new_files_good/StanleyxStarbucks/UK/
+
+https://rosesros.github.io/new_files_good/AmazonKindlePaperwhite/UK/
+
 https://rosesros.github.io/new_files_good/buzzLight/UK/
 
 https://roseslands.surge.sh/@pre6/
