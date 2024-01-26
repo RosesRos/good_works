@@ -25,6 +25,12 @@ https://rosesros.github.io/new_files_good/Whiteningtoothpaste/UK/
 
 https://rosesros.github.io/new_files_good/PortaFlix/DE/
 
+https://rosesros.github.io/new_files_good/phomemoPortablePrinter/UK/
+
+https://rosesros.github.io/new_files_good/TomFordWoman/UK/
+
+https://rosesros.github.io/new_files_good/TomFordMan/UK/
+
 https://roseslands.surge.sh/@pre3/
 
 https://rosesros.github.io/new_files_good/optimus/UK/
