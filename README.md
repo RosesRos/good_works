@@ -31,7 +31,7 @@ https://rosesros.github.io/new_files_good/TomFordWoman/UK/
 
 https://rosesros.github.io/new_files_good/TomFordMan/UK/
 
-https://roseslands.surge.sh/@pre3/
+https://rosesros.github.io/lands/@pre3/
 
 https://rosesros.github.io/new_files_good/optimus/UK/
 
@@ -41,7 +41,7 @@ https://rosesros.github.io/lands/@pre54/
 
 https://rosesros.github.io/new_files_good/Antithefbag/UK/
 
-https://roseslands.surge.sh/@pre5/
+https://rosesros.github.io/lands/@pre5/
 
 https://rosesros.github.io/new_files_good/LEGORoses/UK/
 
@@ -53,17 +53,17 @@ https://rosesros.github.io/new_files_good/AmazonKindlePaperwhite/UK/
 
 https://rosesros.github.io/new_files_good/buzzLight/UK/
 
-https://roseslands.surge.sh/@pre6/
+https://rosesros.github.io/lands/@pre6/
 
 https://rosesros.github.io/new_files_good/infinity/DE/
 
 https://rosesros.github.io/legends_game/#/
 
-https://roseslands.surge.sh/@pre8/
+https://rosesros.github.io/lands/@pre8/
 
 https://rosesros.github.io/lands/@pre26/
 
-https://roseslands.surge.sh/@pre9/
+https://rosesros.github.io/lands/@pre9/
 
 https://lure.lovestoblog.com/FD32/
 
